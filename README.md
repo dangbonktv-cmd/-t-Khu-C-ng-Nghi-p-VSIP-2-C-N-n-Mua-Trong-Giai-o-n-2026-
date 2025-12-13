@@ -19,4 +19,4 @@ Có, đặc biệt cho các nhóm nhà đầu tư sau:
 Doanh nghiệp FDI cần mở rộng nhà máy ngay lập tức.
 SME muốn tìm khu vực hạ tầng hoàn thiện, ít rủi ro.
 Nhà đầu tư dài hạn săn tài sản công nghiệp có tính thanh khoản cao.
-🔗 Tham khảo giỏ hàng đất & nhà xưởng VSIP 2: https://www.tongkhoxuong.com/ban-nha-xuong-tai-kcn-vsip-ii-binh-duong/
+🔗 Tham khảo giỏ hàng đất & nhà xưởng VSIP 2: [https://www.tongkhoxuong.com/ban-nha-xuong-tai-kcn-vsip-ii-binh-duong/](url)
